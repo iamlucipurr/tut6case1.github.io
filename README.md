@@ -1,1 +1,0 @@
-# tut6case1.github.io
